@@ -80,4 +80,5 @@ or
 
 ## **Author**
 SAMUEL EFFIONG
+l don't really like this project for me it is stressfull because finding a team is heard
 
